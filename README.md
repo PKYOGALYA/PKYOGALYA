@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...webdevlopment and digital marketing
 - 💞️ I’m looking to collaborate on ...web devlopment and digital marketing
 - 📫 How to reach me ...teamyogalya@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: ... yogalya
 - ⚡ Fun fact: ...
 
 <!---
